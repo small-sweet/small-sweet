@@ -1,7 +1,7 @@
 ## 资源目录
-http://jiansuo.cjtsg.com/
+http://23.91.96.150/
 
-## 我的微信：zs62525
+## 我的微信：saiyou060
 
 添加请备注：来自github
 
