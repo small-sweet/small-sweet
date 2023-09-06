@@ -1,5 +1,5 @@
 ## 资源目录
-http://23.91.96.150/
+http://jiansuo.cjtsg.com/
 
 ## 我的微信：saiyou060
 
